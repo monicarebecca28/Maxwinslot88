@@ -3,7 +3,7 @@
 <html lang="id">
   <head>
     <meta charset="UTF-8" />
-    <meta http-equiv="refresh" content="0;url=https://link-slot-kamu.com">
+    <meta http-equiv="refresh" content="0;url=https://Maxwinslot88.com">
     <title>Redirect...</title>
   </head>
   <body>
